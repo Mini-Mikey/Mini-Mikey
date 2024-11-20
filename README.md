@@ -1,5 +1,5 @@
 # About me
 
-- 📫 How to reach me: You don't, not yet.
+- 📫 How to reach me: m.townsendnyc@gmail.com
 - 😄 Pronouns: I have a penis.
-- ⚡ Fun fact: I use VIM lol.
+- ⚡ Fun fact: I use VIM, lol.
